@@ -1,2 +1,2 @@
-# B-l-msonucalismasi
+# Bolummsonucalismasi
 Bölüm Sonu Çalışması
